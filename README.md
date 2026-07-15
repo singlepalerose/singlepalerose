@@ -4,7 +4,11 @@
 <p align=center> <img src=https://files.catbox.moe/55wzy8.png>    dani  .   :;    <img src=https://cdn.discordapp.com/attachments/1509302892908122213/1525511867399798854/f1695399.gif?ex=6a53a723&is=6a5255a3&hm=a10f6d517c8242b295a2c8eb74b0bbae2e9479913bebc8d5af5dce1e54a2d123&>  #    they   .   @ xe   .    anyprns    <img src=https://files.catbox.moe/eitmnd.gif> </p>
 <p align=center>    ☆   .   non - binary    <img src=https://files.catbox.moe/uv080z.gif>  .   𝄢   musical enthusiast  .  <img src=https://files.catbox.moe/c6xnil.gif>   minor</p>
 <p align=center> :;    <img src=https://files.catbox.moe/19p6rw.gif>    . iwc    .     sensitive  </p>
-
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=315sppu6sfxv3cnblmn6lp63zaom&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false&mode=dark">
+  </a>
+</p>
 <!--
 **singlepalerose/singlepalerose** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
