@@ -6,7 +6,7 @@
 <p align=center>
 <img src="https://files.catbox.moe/zf8c9w.gif"width="20"height="20">  dani  .  :;    <img src="https://files.catbox.moe/782bai.gif"width="20"height="20">  # they  .   xe   .   anyprns  <img src="https://files.catbox.moe/z7t2k7.gif"width="20"height="20"> </p>
 <p align=center>   <img src="https://files.catbox.moe/b63k9a.png"width="20"height="20">   . non - binary   𝄢  i like musicals  . <img src="https://files.catbox.moe/3oy9mp.gif"width="20"height="20">  minor</p>
-<p align=center> :;   <img src="https://files.catbox.moe/vb50dj.webp" width="20" height="20">   . iwc   .    sensitive   <img src="https://files.catbox.moe/rwexax.gif"width="20"height="20">   .    c+h encouraged</p>
+<p align=center> :;   <img src="https://files.catbox.moe/vb50dj.webp" width="20" height="20">   . iwecuf   .    sensitive   <img src="https://files.catbox.moe/rwexax.gif"width="20"height="20">   .    c+h encouraged</p>
 <p align=center>    </p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
