@@ -1,4 +1,4 @@
-<p align=center> <img src="https://files.catbox.moe/8l79n6.png" height="207.692307692"width= "500" height="150"> </p>
+<p align=center> <img src="https://files.catbox.moe/8l79n6.png" height="207.692307692"width= "1000" height="300"> </p>
 <p align=center> .     ⊹    ◡     wip. </p>
 <p align=center> <img src=https://files.catbox.moe/0x9ilz.gif> </p>
 <img src="https://files.catbox.moe/zmghva.png" align="right" width="200" height="200">
@@ -13,7 +13,7 @@
   </a>
 </p>
 <p align=center>    </p>
-<p align="center"> <img src="https://files.catbox.moe/u4559o.png"width= "500" height="150"> </p>
+<p align="center"> <img src="https://files.catbox.moe/u4559o.png""width= "1000" height="300"> </p>
 
 <p align=center> <img src="https://files.catbox.moe/bhrxad.gif"><img src="https://files.catbox.moe/17x7pp.gif"><img src="https://files.catbox.moe/9t2s1f.png"><img src="https://files.catbox.moe/gzcqhc.gif"><img src="https://files.catbox.moe/nlic8j.jpg"><img src="https://files.catbox.moe/olvzck.png"><img src="https://files.catbox.moe/42bh3f.gif"> </p>
 <p align=center> <img src="https://files.catbox.moe/75zulo.gif"><img src="https://files.catbox.moe/9831zl.gif"><img src="https://files.catbox.moe/dhspp2.gif"><img src="https://files.catbox.moe/v0yr85.gif"><img src="https://files.catbox.moe/28ljck.gif"><img src="https://files.catbox.moe/f3xcsb.gif"></p>
