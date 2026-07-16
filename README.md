@@ -3,7 +3,7 @@
 <p align=center> <img src=https://files.catbox.moe/0x9ilz.gif> </p>
 <p align=center> <img src=https://files.catbox.moe/55wzy8.png>    dani  .   :;    <img src=https://cdn.discordapp.com/attachments/1509302892908122213/1525511867399798854/f1695399.gif?ex=6a53a723&is=6a5255a3&hm=a10f6d517c8242b295a2c8eb74b0bbae2e9479913bebc8d5af5dce1e54a2d123&>  #    they   .   @ xe   .    anyprns    <img src=https://files.catbox.moe/eitmnd.gif> </p>
 <p align=center>    ☆   .   non - binary    <img src=https://files.catbox.moe/uv080z.gif>  .   𝄢   musical enthusiast  .  <img src=https://files.catbox.moe/c6xnil.gif>   minor</p>
-<p align=center> :;    <img src=https://files.catbox.moe/19p6rw.gif>    . iwc    .     sensitive  </p>
+<p align=center> :;    <img src=https://files.catbox.moe/19p6rw.gif>    . iwc    .     sensitive   .    c+h encouraged</p>
 <p align=center>    </p>
 <p align="center"> <img src="https://cdn.discordapp.com/attachments/1509302892908122213/1527042141191405731/8cf16a84.gif?ex=6a593851&is=6a57e6d1&hm=61d4630ceb6bcb74deb8bdad0a4f253bd6dd27ba608bfd6ba3da3e6dc2059d0a&"> </p>
 <p align=center>    </p>
